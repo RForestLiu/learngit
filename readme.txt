@@ -1,1 +1,1 @@
-creating a new branch is quick & simple & free
+creating a new branch is quick & simple and free
